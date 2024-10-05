@@ -1,1 +1,1 @@
-## HI, I am Dep Chauhan
+## HI, I am Deep Chauhan
